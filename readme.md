@@ -31,7 +31,7 @@
 
 ---
 
-## 🚀 GET SESSION
+## 🚀 GET SESSION✅
 
 <p align="center">
   <a href="https://charle-ke.onrender.com">
@@ -59,7 +59,7 @@
 
 ---
 
-## ⚡ CHARLESKE BOT INFO  
+## ⚡ CHARLESKE BOT INFO🔥  
 🚗 **High Performance** - Optimized for speed and efficiency  
 🛡️ **Secure** - Built-in security mechanisms  
 🔄 **Auto Updates** - Stay up-to-date with the latest improvements  
